@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do João Maikon o_O
+## Bem-vindo(a) ao perfil do João Maikon 💾
 
  <div>
    <a href="https://github.com/jmaikonSR">
